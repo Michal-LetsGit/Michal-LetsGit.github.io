@@ -28,7 +28,7 @@ Text is available under the [Creative Commons Attribution-ShareAlike License](ht
 
 
 ##### Picture
-Seite "David Bowman". In: Fandom communities. URL: [https://2001.fandom.com/wiki/David_Bowman]
+Seite "David Bowman". In: Fandom communities. URL: https://2001.fandom.com/wiki/David_Bowman
 
 Community content is available under [Creative Commons Attribution-Share Alike License 3.0 (Unported) (CC-BY-SA)](http://creativecommons.org/licenses/by-sa/3.0/) unless otherwise noted.
 
